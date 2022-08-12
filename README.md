@@ -3,7 +3,7 @@
 
 
 - 📍 Location: Edmonton, Canada
-- 📫 How to reach me: Email- moazabdelmonem7@gmail.com
+- 📫 How to reach me: Email- mabdelmo@ualberta.ca
 - 😄 Pronouns: He/Him/His
 
 About Me
