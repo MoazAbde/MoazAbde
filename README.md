@@ -8,11 +8,11 @@
 
 About Me
 
-I'm a third year student at the University of Alberta pursuing a Bachelor of Applied Science in Computer Engineering Software option degree.
+I'm a Graduate Electrical Engineering student from the University of Alberta.
 
-Currently, I am looking for winter 2024 Engineering internships. 
+Currently, I am looking for a full time job in software development. 
 I am eager to apply what I learned into real life problems.
 
 In my free time, I enjoy playing sports competitively (soccer and golf), hanging out with friends, and traveling the world! 
-I'm studying Engineering at the University of Alberta with an interest in Software and Electrical Engineering.
+
 
